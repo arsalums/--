@@ -1,5 +1,14 @@
-**Experience:**
+# "Experience"
 
-Director of comprehensive synergy orchestration for scalable outcome generation as it applies to cross-domain leverage and frictionless stakeholder convergence within the open deliverable framework. Former Head of Approximate Correctness at the Global Institute for Strategic Vagueness. Lead coordinator coordinating lead at the firm.
+Director of dynamic interpolation for comprehensive media distribution and analysis as it applies to heuristic community building and efficient workplace design practices through the open ambiguity foundation. Former head of technical minutiae at the global foundation of situational systematic dependence and programmatic regression analysis. Lead team lead at corpcorp.
 
+# Currently Learning
 
+- Industrial confusion & inconvenience engineering
+- Force push and pray
+- verse abstraction (in the general sense as it applies to cubic regression)
+- liquification
+- analytical analysis
+- Rats (those lil cheese eating gray guys)
+
+Vibe coding is obsolete, real ones aura code.
